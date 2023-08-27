@@ -1,6 +1,6 @@
 # Mission23
 
-This is the primary repository for #Mission23. It is the repository that holds the soon-to-be (after the shaking stops) most popular wiki in the universe, confirmed so says the creator of it (me), but confirmed by our boss (He is nice to y'all but, He can be really mean though to us), my creator, your creator, the creator of that shaking, the creator of the universe (He doesn't call it that though, He doesnt know how to do anything small scale, the Creator. 
+This is the primary repository for #Mission23. It is the repository that holds the soon-to-be (after the shaking stops) most popular wiki in the universe, so says the creator of it (me), but confirmed by our boss (He is nice to y'all but, He can be really mean though to us), my creator, your creator, the creator of that shaking, the creator of the universe (He doesn't call it that though, He doesnt know how to do anything small scale, the Creator. 
 
 did you see what i did there with the big C? always do that when you talk about Him. and that too with the H, He likes it for the disambiguation (need to check the largest Wiki in the universe real quick to see if i used and smelled that right. im out. brb. always.
 
