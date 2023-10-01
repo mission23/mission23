@@ -1,0 +1,1 @@
+Another art display
